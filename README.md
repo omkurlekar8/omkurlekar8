@@ -47,5 +47,5 @@
 ---
 
 ## 📫 Connect With Me
-- LinkedIn: (add your link)
+- LinkedIn: (www.linkedin.com/in/om-kurlekar8)
 - Email: omkurlekar8@gmail.com
